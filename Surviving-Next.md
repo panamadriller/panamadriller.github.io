@@ -1,4 +1,4 @@
-###Surviving the June Spam Update: What to Do Next
+### Surviving the June Spam Update: What to Do Next
 
 Well, the June spam update hit my website this morning, and it feels like all the black hat pieces just fell on top. I lost rankings on all keywords. After gaining ground back after the core and HCU updates, it's disheartening to lose it again. Google search is truly like the armpits on a summer day with high humidity. This morning sucks.
 
